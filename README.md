@@ -1,5 +1,5 @@
 - web dev/design + photography
-- constantly on the move (currently in chicago, IL...)
+- constantly on the move (currently in charleston, SC...)
 - inquiries: aubrey@aubpohl.com
 
 this is my personal account, dedicated to my personal projects.<br>

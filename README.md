@@ -1,3 +1,3 @@
-- currently: nashville, TN
+- currently: knoxville, TN
 - inquiries: aubrey@aubpohl.com
 
